@@ -1,4 +1,4 @@
-# Hi 👋, I'm Alisha Anil Kalghatgi
+# Hi 👋, I'm Alisha  Kalghatgi
 
 🎓 Third Year Bachelor of Engineering (BE) Student  
 📊 Aspiring Data Analyst  
